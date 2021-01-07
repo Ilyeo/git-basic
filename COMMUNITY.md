@@ -8,3 +8,4 @@
 6. Notificar a Roy
 
 José Rogelio Alatorre González
+Luis Diego Vera Alvarez (/*o*)/
