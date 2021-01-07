@@ -20,3 +20,4 @@ copia de mi repositorio en su perfil de github
 7. Notificar a Roy
 
 José Rogelio Alatorre González
+Luis Diego Vera Alvarez (/*o*)/
